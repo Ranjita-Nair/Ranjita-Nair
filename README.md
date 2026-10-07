@@ -10,7 +10,7 @@
 
 ## Reach me
 
-- LinkedIn: (https://linkedin.com/in/in/ranjita-nair13)
+- LinkedIn: (https://linkedin.com/in/ranjita-nair13)
 - Email: nair13ranjita@gmail.com
 
 <!--
